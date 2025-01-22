@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **akashguptavns004@gmail.com**
 
-- 📄 Know about my experiences https://drive.google.com/file/d/1q0nyhcyjH-FUN0Vhuq83nj1oXlLZPC2H/view?usp=sharing
+- 📄 Know about my experiences https://drive.google.com/file/d/1aAKtWQJ0Lbyjm8-ox4U8gsmy24YyZJht/view
 
 - ⚡ Fun fact **I am funny**
 
